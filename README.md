@@ -1,0 +1,1 @@
+# TutoriaisIA_PatriciaGuerreiro_a47532
